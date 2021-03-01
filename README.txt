@@ -1,2 +1,2 @@
 Xinyi Wu
-Lakers
+favorite sport team: lakers
